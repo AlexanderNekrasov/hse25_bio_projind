@@ -26,8 +26,8 @@ Chrysodeixis includens
 
 Распределение структур по геному:
 
-![CleanShot 2025-06-12 at 16 45 10@2x](https://github.com/user-attachments/assets/aafe7d34-4094-4c47-a505-b8a38d9ea911)
+![CleanShot 2025-06-18 at 23 09 08@2x](https://github.com/user-attachments/assets/ff330272-63d5-4948-91eb-f2e60943eeeb)
 
-![CleanShot 2025-06-12 at 16 45 30@2x](https://github.com/user-attachments/assets/cf170bcf-1b5c-4e2d-a23f-7ae86bcf2d3f)
+![CleanShot 2025-06-18 at 23 09 20@2x](https://github.com/user-attachments/assets/ced76319-21dc-48c4-bbb1-d107536267d6)
 
 
